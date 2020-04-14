@@ -3,4 +3,4 @@
 
 Контакты студентки: 
 почта nast-em@yandex.ru
-телефон @damngutshawty
+телеграм юзернейм @damngutshawty
